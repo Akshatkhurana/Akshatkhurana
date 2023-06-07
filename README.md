@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Akshatkhurana
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning C language
+- 🌱 I’m currently learning java+DSA
 - 📫 Currently in Thapar University
 
 <!---
