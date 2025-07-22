@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **khuranaakshat33@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1YM3_UHzlHARQy7g5DkKh6xUWr1-6mRH6?usp=sharing](https://drive.google.com/drive/folders/1YM3_UHzlHARQy7g5DkKh6xUWr1-6mRH6?usp=sharing)
+- 📄 Know about my experiences [Resume]([https://drive.google.com/drive/folders/1YM3_UHzlHARQy7g5DkKh6xUWr1-6mRH6?usp=sharing](https://drive.google.com/file/d/1gNcPrmzuUFhpOhO4HSHmb7_XAPAdo-6X/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
